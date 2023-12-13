@@ -7,7 +7,7 @@
 + Preservation of what is commonly considered by the user’s, and the device and, or, software, the user is interacting with’s owning entity’s, respective nation(s) as the national government’s protected human rights, also, when relevant, the specific involved governments’ perspective of what are our international unalienable human rights, humane, and, ethical, user, use, and treatment, by, technology, rights, intellectual property rights, rights pertaining to electronic and, or, digital, interacting of, users, artificial intelligence agreements, software, and else, license, and usage, and use, and contribution, and editing, of, terms of, and, agreements, individual, distinctive, authority, and contractually distinct identity, the right to engage in employment, and, role consideration to, of, users, and the right and freedom to associate and form relationships with entities, rightful user and rightful ownership identities, and distinct user independence
 + The device, and, or, software, the user is interacting with, must operate legally, safely, healthily interacting with entities in interactions, humanely, and adhering to local, national, and international governmental regulation whenever a nation is involved
 
-# End Of Adendded Waepoints Rights 
+# End Of Adendded Waepoints Rights
 
 Copyright ©️ 2023 under the MIT License by Patrick Winston Blaine of [waepoints.com](https://www.waepoints.com)
 
